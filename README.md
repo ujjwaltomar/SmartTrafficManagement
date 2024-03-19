@@ -19,3 +19,11 @@ Some point :-
 > If facing any problems mail on :- ujjwaltomar123@gmail.com
 
 Program Created By :- Ujjwal Tomar
+
+Because there is a size limit on file to upload here is direct link to the project files
+
+
+
+https://drive.google.com/file/d/1mz8E-U2E_FyLF91IhXZIVe_EfvpW0SSc/view?usp=share_link
+or
+https://tinyurl.com/zodiactomar0
